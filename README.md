@@ -14,6 +14,7 @@ hi, im <b>faith!</b> also known as <i>wing/wingette</i>. ⁠๑
   <li>im very awkward with anyone in general, this is because im shy or scared towards people. please dont expect consistent/guaranteed responses as i dont know how to converse with you properly</li>
   </ul>
   <p>more info in <b>strawpage</b>. ✿</p>
+  <hr />
   <h1>C+H and whispers are always open unless said otherwise. ^_^ please dont be afraid to talk to me! i love friends.</h1>
   
 </body>
